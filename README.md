@@ -1,0 +1,1 @@
+# Smart-Farming-vs.-Autonomous-Farming-How-AI-Is-Transforming-Precision-Agriculture
